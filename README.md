@@ -8,4 +8,5 @@ Coisas que eu faço
 - Estudandono alura
 - Usando Alura e  Scratch
    
- https://media.tenor.com/0pvkcJB0cGgAAAAi/fundamental-paper-education-head-pat.gif
+![](https://media.tenor.com/0pvkcJB0cGgAAAAi/fundamental-paper-education-head-pat.gif)
+ 
