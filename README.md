@@ -7,5 +7,5 @@ Coisas que eu faço
 - Aprendendo a linguagem de script
 - Estudandono alura
 - Usando Alura e  Scratch
-  
-https://tenor.com/pt-BR/view/fundamental-paper-education-head-pat-cubbie-gif-15175974541466038376
+   
+<div class="tenor-gif-embed" data-postid="15175974541466038376" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/fundamental-paper-education-head-pat-cubbie-gif-15175974541466038376">Fundamental Paper Education Head Pat Sticker</a>from <a href="https://tenor.com/search/fundamental+paper+education-stickers">Fundamental Paper Education Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
